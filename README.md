@@ -5,4 +5,4 @@ NHSX is jointly governed by the Department of Health and Social Care (DHSC) and 
 
 ## Current opportunities
 
-To view all the cuurrent roles avablibe at NHSx please visit https://www.nhsx.nhs.uk/about-us/working-for/job-opportunities/
+To view all the current roles available at NHSx, please visit https://www.nhsx.nhs.uk/about-us/working-for/job-opportunities/
